@@ -1,1 +1,1 @@
-Mi pruyecto
+Mi proyecto
